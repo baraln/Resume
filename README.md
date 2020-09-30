@@ -1,4 +1,5 @@
 ## Niranjan Baral
+niranjanoe@hotmail.com, 210-606-3797, San Diego, CA
 
 Active Duty Officer in the US Navy looking for new opportunities in the IT software realm. Separating from US Navy as early as November 2020 depending on the Job timeline.
 
