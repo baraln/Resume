@@ -15,7 +15,7 @@ JavaScript, HTML (CS 100 - Intro to Computer Science @ BYU), Java (CS 142 - Intr
 
 #### Brigham Young University, UT (2008 to 2012)
 
-- Clinical Lab Science
+- Bachelors in Clinical Lab Science
 
 ## Hobbies
 
